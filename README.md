@@ -13,5 +13,5 @@
 - 🔍 Always looking for new opportunities to learn and grow  
 
 ## 🤝 Let's Connect  
-- 📫 How to reach me: [Email](suzenfurkan01@gmail.com)  
+- 📫 How to reach me: [suzenfurkan01@gmail.com]
 - 🎯 Fun fact: I made a game in **24 hours** for a game jam!  
